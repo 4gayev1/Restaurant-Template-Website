@@ -1,3 +1,3 @@
 Live: https://restaurant-cs5.pages.dev/
 
-![marketing-1lx pages dev_](https://github.com/user-attachments/assets/a1035cd5-3f2e-44c3-ac29-6fbfa9d8ccd2)
+![restaurant-cs5 pages dev_](https://github.com/user-attachments/assets/06147fc1-2d81-4aef-a796-5635ed0706b0)
